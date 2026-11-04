@@ -1,3 +1,3 @@
-# ChowderWellington
+# ChowderNZ
 
-We are a cool place for cool people to make cool things!
+We are a not for profit company based in good ol' NZ and we make super awesome tech stuff of every variety
